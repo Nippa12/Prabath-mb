@@ -1,2 +1,0 @@
-# Prabath-mb
-Nippa
